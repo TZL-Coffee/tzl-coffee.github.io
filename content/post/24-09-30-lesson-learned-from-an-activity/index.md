@@ -21,12 +21,12 @@ So, focusing on promoting my products only to my target customers makes selling 
 
 I often say, “Human nature is sales and brokerage.” For an ordinary salesperson, having a normal professional attitude and recommending products based on customers’ preferences is enough. But top-tier salespeople also excel at expanding their target customer base.
 
-One of the community staff told me that I wasn’t good at selling. And that’s true—I’m not a top-tier salesperson, nor have I put much effort into people outside my predefined target audience. For me, becoming a gold-level salesperson requires far more effort than what I would gain. My goal is simply to keep the shop running steadily, not to maximize profit at all costs.
+One of the community staff told me that I wasn’t good at selling. That’s true. I’m not a top-tier salesperson, nor have I put much effort into people outside my predefined target audience. For me, becoming a gold-level salesperson requires far more effort than what I would gain. My goal is simply to keep the shop running steadily, not to maximize profit at all costs.
 
 But when it comes to earning money, being a strong salesperson 👩‍💼 can indeed create value equal to product development.
 
 
 
-Time flies—my little shop has already been open for five months, nearly one-quarter of my planned timeline.
+Time flies. My little shop has already been open for five months, nearly one-quarter of my planned timeline.
 
 Lastly, wishing everyone a happy National Day! 

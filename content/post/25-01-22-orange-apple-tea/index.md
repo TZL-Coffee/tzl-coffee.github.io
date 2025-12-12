@@ -15,30 +15,38 @@ date: 2025-01-22
 
 #### Brewing Methods
 
-Method 1
+Method 1:
 Stir-fry the tea leaves for 2 minutes → add white sugar and heat until caramelized → add a few slices of fresh orange → add water and bring to a boil.
 
-Method 2
+Method 2:
 Steep black tea for 3 minutes → mix the tea with freshly squeezed orange juice at a 4:1 ratio → add sugar according to taste.
 
-Method 3
+Method 3:
 Put all ingredients except the tea leaves (orange, apple, etc.) into the pot and bring to a boil → add the tea leaves and simmer for 3 minutes.
 
 #### BEvaluation of the Brewing Methods
-Method 1
-This is a common approach in many online posts, but it’s the one I least recommend.
-    1.Stir-frying the tea leaves is very tricky—if the heat is even slightly off, the drink can become burnt, bitter, or overly astringent.
-    2.Also, because you can't use high heat, the entire process becomes very time-consuming.
-If you must use Method 1, please note:
-⚠️ Always use low heat | Do not stir the sugar | Turn off heat and strain immediately after boiling.
+Method 1:
 
-Method 2
+This is a common approach in many online posts, but it’s the one I least recommend.
+    
+1.Stir-frying the tea leaves is very tricky—if the heat is even slightly off, the drink can become burnt, bitter, or overly astringent.
+
+2.Also, because you can't use high heat, the entire process becomes very time-consuming.
+
+If you must use Method 1, please note: ⚠️ Always use low heat | Do not stir the sugar | Turn off heat and strain immediately after boiling.
+
+Method 2:
+
 This was my “lazy backup” solution after failing with Method 1, but it turned out surprisingly good.
+
 I compared Twinings Earl Grey and English Breakfast. Earl Grey is slightly more astringent, and with orange juice added, the drink becomes more sour.
 
-Method 3
+Method 3:
+
 This is the improved version of Method 1.
+
 By boiling the fruits first, you release the fruit aroma before adding the tea, so you don’t have to worry about burning the sugar or the tea leaves. You can cook the whole thing over high heat, which saves a lot of time.
+
 Compared with Method 2, this version has a richer, fresher fruit aroma—and it’s more cost-effective.
 
 ### Additional Tips
