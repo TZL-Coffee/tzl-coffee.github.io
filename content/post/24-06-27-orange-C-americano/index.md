@@ -7,7 +7,7 @@ date: 2024-06-27
 
 150ml orange juice + double espresso + 30~50ml water + ice.
 
-[Chinese version](https://www.xiaohongshu.com/explore/667d0b64000000001d01bb40?xsec_token=AB2HMiK3qLo9BQK9tWGrZKQiE5LdC3y6S9m1Zm97DqoYQ=&xsec_source=pc_user)
+[Chinese version](https://www.xiaohongshu.com/explore/667d0b64000000001d01bb40?xsec_token=ABBTkHD4dQxmKLxQbZIPv-a-4-e4oD5QF3z1wjxhsSniA=&xsec_source=pc_user)
 
 <!--more-->
 

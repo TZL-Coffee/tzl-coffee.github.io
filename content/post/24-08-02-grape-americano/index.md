@@ -7,7 +7,7 @@ date: 2024-08-02
 
 125ml grape juice + 55ml sparkling water + double espresso + ice.
 
-[Chinese version](https://www.xiaohongshu.com/explore/66ac6f260000000005032a99?xsec_token=ABRb_ioBcJg_lSINZ46qTuctYR8ZqbZ-5oMR-sa9NZDI8=&xsec_source=pc_user)
+[Chinese version](https://www.xiaohongshu.com/explore/66ac6f260000000005032a99?xsec_token=ABRb_ioBcJg_lSINZ46qTucqQGyYW0iw8LiWqIhphm_r0=&xsec_source=pc_user)
 
 <!--more-->
 

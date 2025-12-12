@@ -7,7 +7,7 @@ date: 2024-05-11
 
 1-2 slices of yellow lemon + 2 slices of kaffir lime + 30ml preserved plum syrup + 300ml tea + ice.
 
-[Chinese version](https://www.xiaohongshu.com/explore/663f31c2000000001e026468?xsec_token=AB504vhPs0Wc6TaYvrpjYmTBl-dlHv5ObKUH_OuP8yljY=&xsec_source=pc_user)
+[Chinese version](https://www.xiaohongshu.com/explore/663f31c2000000001e026468?xsec_token=AB504vhPs0Wc6TaYvrpjYmTA6tRCLzZtc_fI4N-3Hg9JQ=&xsec_source=pc_user)
 
 <!--more-->
 

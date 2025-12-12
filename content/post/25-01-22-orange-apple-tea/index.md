@@ -7,7 +7,7 @@ date: 2025-01-22
 
 1 orange + 1 apple + a handful of goji berries + 30g brown sugar + 4g back tea + 1200ml Water
 
-[Chinese version](https://www.xiaohongshu.com/explore/67908a53000000001800fc61?source=webshare&xhsshare=pc_web&xsec_token=ABFwfrEXJ2RsmEeQGi8S69h3lfmlD_bLDbNpA_7YvSZr0=&xsec_source=pc_share)
+[Chinese version](https://www.xiaohongshu.com/explore/67908a53000000001800fc61?xsec_token=ABFwfrEXJ2RsmEeQGi8S69hyG13Zhn6CTuLAat80Ve6og=&xsec_source=pc_user)
 
 <!--more-->
 

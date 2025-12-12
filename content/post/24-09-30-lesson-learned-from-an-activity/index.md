@@ -3,6 +3,8 @@ title: What I Learned from Joining a Community Event
 date: 2024-09-30
 ---
 
+[Chinese version](https://www.xiaohongshu.com/explore/66fa23bc000000002a03652c?xsec_token=ABwtiiymRLIA_vUahkpeRnEqGvGv6dTmWbnkKmXiwVhas=&xsec_source=pc_user)
+
 I joined a community National Day event as a vendor. Most of the visitors were elderly grandparents 👴🏻👵🏻. As you can imagine, coffee wasn’t exactly a popular choice, although the samples I prepared did all get taken.
 
 Within this group, only a very small number proactively wanted to try coffee ☕. Most people only tasted it because younger family members encouraged them, or simply because “it’s free” and “why not try something new.”

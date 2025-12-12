@@ -7,7 +7,7 @@ date: 2024-10-07
 
 200ml coconut water + double espresso + one slice of kaffir lime + ice.
 
-[Chinese version](https://www.xiaohongshu.com/explore/67038322000000002a0312a9?xsec_token=ABmhUywtVEBjtpU_xPSam3zigUc5A7xIzzb8137gERZGE=&xsec_source=pc_user)
+[Chinese version](https://www.xiaohongshu.com/explore/67038322000000002a0312a9?xsec_token=ABmhUywtVEBjtpU_xPSam3zrtSJz7kOrBMRAy2VLtmTpg=&xsec_source=pc_user)
 
 <!--more-->
 

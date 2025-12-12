@@ -5,7 +5,7 @@ date: 2024-04-25
 
 I hired a designer from Sichuan Fine Arts Institute, the one who painted Zhao Liying.
 
-[Chinese version](https://www.xiaohongshu.com/explore/662a0fdb000000001c008403?xsec_token=ABBfg7WwQeSAyvoeNkdG5nwFM5D3OTvFup8K-jM6tnUx4=&xsec_source=pc_user)
+[Chinese version](https://www.xiaohongshu.com/explore/662a0fdb000000001c008403?xsec_token=ABbnAzjhbsaD4g_xQkWCA3fiPymm5CH7IU-hHu96Tgl9g=&xsec_source=pc_user)
 
 <!--more-->
 

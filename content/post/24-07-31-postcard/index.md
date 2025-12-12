@@ -3,7 +3,11 @@ title: Hand-drawn Postcard
 date: 2024-07-31
 ---
 
+[Chinese version](https://www.xiaohongshu.com/explore/66a9b22b0000000005030756?xsec_token=ABL8qw68rDbufrGT9QsLKjsx5YcxUW1ibpOFSIJZ6JFu0=&xsec_source=pc_user)
+
 This is a set of postcards that I personally designed and hand-illustrated. The front side features signature drinks from my coffee shop, while the back highlights iconic landmarks from my hometown, Chongqing.
+
+
 
 ### Front Side of the Postcard
 
