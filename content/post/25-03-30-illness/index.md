@@ -5,6 +5,8 @@ date: 2025-03-30
 
 [Chinese version](https://www.xiaohongshu.com/explore/67e8aec000000000090155a4?xsec_token=ABaUKAi3O2hTRkiPXaCmDSl2s_TJaBBD6vUhnldttiZDs=&xsec_source=pc_user)
 
+<!--more-->
+
 During the days without updates, I was still quietly living and feeling life.
 
 Ever since I opened the shop last year and started this account, I’ve kept a steady posting rhythm. I didn’t update daily like some people suggested, but I also never disappeared for more than seven days, because I treat this account as part of my work. Even though it doesn’t bring me any income, I still take it seriously.
