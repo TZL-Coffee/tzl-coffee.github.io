@@ -52,8 +52,8 @@ social:
   - icon: linkedin
     icon_pack: fab
     link: https://www.linkedin.com/in/danlu-chen-97a569217/
-  - icon: book
-    icon_pack: fab
+  - icon: xiaohongshu
+    icon_pack: custom
     link: https://www.xiaohongshu.com/user/profile/5959be0e5e87e756e7164ec9
 # Link to a PDF of your resume/CV from the About widget.
 # To enable, copy your resume/CV to `static/files/cv.pdf` and uncomment the lines below.

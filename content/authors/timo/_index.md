@@ -55,8 +55,8 @@ social:
   - icon: linkedin
     icon_pack: fab
     link: https://www.linkedin.com/in/yuhangt1an
-  - icon: book
-    icon_pack: fab
+  - icon: xiaohongshu
+    icon_pack: custom
     link: https://www.xiaohongshu.com/user/profile/6202a29b000000001000a96a
   - icon: github
     icon_pack: fab
