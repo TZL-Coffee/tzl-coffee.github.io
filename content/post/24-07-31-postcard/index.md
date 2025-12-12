@@ -6,6 +6,8 @@ date: 2024-07-31
 This is a set of postcards that I personally designed and hand-illustrated. The front side features signature drinks from my coffee shop, while the back highlights iconic landmarks from my hometown, Chongqing.
 
 ### Front Side of the Postcard
+# Figure with caption
+{{< figure src="./grapesparklingamericano.jpg" caption="My Image" >}}
 ![Grape Americano](./grapesparklingamericano.jpg)
 ![Orange Americano](./orangeamericano.jpg)
 ![Coconut Americano](./coconutamericano.jpg)
