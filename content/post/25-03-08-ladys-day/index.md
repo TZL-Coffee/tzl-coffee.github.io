@@ -3,10 +3,6 @@ title: Happy Women's Day!
 date: 2025-03-08
 ---
 
-[Chinese version](https://www.xiaohongshu.com/explore/67cbca0f000000000b017967?xsec_token=ABTgLc_8Z_4e7w3nrmuPkl5_RXB8xf8pkN3cWy2EOsyFo=&xsec_source=pc_user)
-
-<!--more-->
-
 I’m not someone who cares much about rituals, so I didn’t give myself a day off today.
 
 Honestly, I probably should take a break and go home to spend time with my family.
@@ -19,6 +15,9 @@ Starting over would take so much effort.
 
 Unless one day… I’m simply too tired and need to rest.
 
+[Chinese version](https://www.xiaohongshu.com/explore/67cbca0f000000000b017967?xsec_token=ABTgLc_8Z_4e7w3nrmuPkl5_RXB8xf8pkN3cWy2EOsyFo=&xsec_source=pc_user)
+
+<!--more-->
 
 Back in August last year, I was torn between “I’ll have to run the shop alone from now on” and “I don’t want to break my promise.”
 
