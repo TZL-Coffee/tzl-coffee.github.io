@@ -7,7 +7,7 @@ This is a set of postcards that I personally designed and hand-illustrated. The 
 
 ### Front Side of the Postcard
 # Figure with caption
-{{< figure src="./grapesparklingamericano.jpg" caption="My Image" >}}
+{{< figure src="https://raw.githubusercontent.com/TZL-Coffee/tzl-coffee.github.io/refs/heads/main/content/post/24-07-31-postcard/grapesparklingamericano.JPG" caption="Grape Americano" >}}
 ![Grape Americano](./grapesparklingamericano.jpg)
 ![Orange Americano](./orangeamericano.jpg)
 ![Coconut Americano](./coconutamericano.jpg)
