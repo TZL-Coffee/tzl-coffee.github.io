@@ -22,7 +22,7 @@ Looking back, all that early anxiety was unnecessary.
 
 When you don’t know which direction to take, just keep moving forward.
 
-Now, this little eight–square-meter shop feels more like my studio and study room.
+Now, this little eight-square-meter shop feels more like my studio and study room.
 
 It seems like I’m confined here, yet somehow it gives me even more freedom.
 
