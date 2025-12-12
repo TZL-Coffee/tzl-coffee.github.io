@@ -1,6 +1,6 @@
 ---
 title: What I Learned from Joining a Community Event
-date: 2024-9-30
+date: 2024-09-30
 ---
 
 I joined a community National Day event as a vendor. Most of the visitors were elderly grandparents 👴🏻👵🏻. As you can imagine, coffee wasn’t exactly a popular choice, although the samples I prepared did all get taken.
