@@ -13,7 +13,7 @@ By the end of the event, I didn’t sell any products… but I did take away two
 
 Business is essentially about selling the right product to the right people in the right place. The nature and positioning of a product nearly determine its customer base.
 
-When I first took over the shop, I already knew my target customers were young and middle-aged tourists 👥. This doesn’t mean I ignore locals or returning customers—but the neighborhood is mainly old residential buildings. For many elderly Chinese people 🇨🇳, tea is far more familiar than coffee. There are also few office buildings nearby, and many young people in the area work in service jobs where drinks are provided by their workplaces, so they are unlikely to buy from me.
+When I first took over the shop, I already knew my target customers were young and middle-aged tourists 👥. This doesn’t mean I ignore locals or returning customers, but the neighborhood is mainly old residential buildings. For many elderly Chinese people 🇨🇳, tea is far more familiar than coffee. There are also few office buildings nearby, and many young people in the area work in service jobs where drinks are provided by their workplaces, so they are unlikely to buy from me.
 
 So, focusing on promoting my products only to my target customers makes selling much easier and more efficient.
 
