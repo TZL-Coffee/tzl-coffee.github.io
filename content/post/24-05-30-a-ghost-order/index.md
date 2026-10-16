@@ -5,7 +5,7 @@ date: 2024-05-30
 
 Someone ordered a cup of coffee, but no one was there.
 
-[Chinese version](https://www.xiaohongshu.com/explore/667d0b64000000001d01bb40?xsec_token=ABBTkHD4dQxmKLxQbZIPv-a-4-e4oD5QF3z1wjxhsSniA=&xsec_source=pc_user)
+[Chinese version](https://xhslink.cn/o/8cnaAXW8hWx )
 
 <!--more-->
 

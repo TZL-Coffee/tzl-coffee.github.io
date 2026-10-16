@@ -9,7 +9,7 @@ This sparked an idea 💡:
 What if I rented many low-cost properties, gave them simple renovations, and turned them into small shops—like snack bars 🌮, cafés ☕, nail salons 💅, and so on? Then, I could launch a “temporary collaboration model,” offering short-term, low-cost rentals to people who want to try “entrepreneurship.”
 
 
-[Chinese version](https://www.xiaohongshu.com/explore/66e4ff4d0000000027003763?xsec_token=ABtCqWBXgpqu1ay18YfytEjpAhHkUj05dF6c2luX29AFQ=&xsec_source=pc_user)
+[Chinese version](https://xhslink.cn/o/8HKQkl5loLN)
 
 ### Feasibility of This Model
 

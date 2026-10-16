@@ -5,7 +5,7 @@ date: 2024-04-30
 
 🎉 Grand Opening of Our Coffee Shop! 🎉
 
-[Chinese version](https://www.xiaohongshu.com/explore/663097e1000000001e01b697?xsec_token=ABYP-thP_OB7u85zCKgiaosCIPCiYFq5UOd-UpcmXTxuY=&xsec_source=pc_user)
+[Chinese version]( https://xhslink.cn/o/4q8gwteIv6f)
 
 <!--more-->
 

@@ -5,7 +5,7 @@ date: 2025-03-08
 
 I’m not someone who cares much about rituals, so I didn’t give myself a day off today.
 
-[Chinese version](https://www.xiaohongshu.com/explore/67cbca0f000000000b017967?xsec_token=ABTgLc_8Z_4e7w3nrmuPkl5_RXB8xf8pkN3cWy2EOsyFo=&xsec_source=pc_user)
+[Chinese version](https://xhslink.cn/o/66Vie2N2miG)
 
 <!--more-->
 

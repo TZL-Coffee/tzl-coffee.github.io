@@ -5,7 +5,7 @@ date: 2025-03-30
 
 During the days without updates, I was still quietly living and feeling life.
 
-[Chinese version](https://www.xiaohongshu.com/explore/67e8aec000000000090155a4?xsec_token=ABaUKAi3O2hTRkiPXaCmDSl2s_TJaBBD6vUhnldttiZDs=&xsec_source=pc_user)
+[Chinese version](https://xhslink.cn/o/DNbWT8KEES)
 
 <!--more-->
 

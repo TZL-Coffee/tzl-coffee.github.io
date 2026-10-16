@@ -5,7 +5,7 @@ date: 2025-04-30
 
 From decision to completion, the handover of the shop took only a week. If I hadn’t been hospitalized, it might have been even faster.
 
-[Chinese version](https://www.xiaohongshu.com/explore/6811949c0000000009038f0a?xsec_token=AB1WcyixoMtGAh9Oiu0qX6kAYpsmAZEbdeHTXBNktQy_Y=&xsec_source=pc_user)
+[Chinese version](https://xhslink.cn/o/22jsbprECWG)
 
 <!--more-->
 
