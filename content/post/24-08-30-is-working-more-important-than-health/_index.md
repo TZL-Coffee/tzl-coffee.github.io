@@ -1,6 +1,6 @@
 ---
 title: Is Working More Important Than Health?
-date: 2024-03-30
+date: 2024-08-30
 ---
 
 Last month, the noodle shop next door was closed for more than twenty days. I later found out that the owner had been ill and needed surgery.
